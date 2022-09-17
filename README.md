@@ -1,6 +1,6 @@
-<img align="right" src="https://count.getloli.com/get/@:Minori-ty?theme=rule34">
+<img align="right" src="https://count.getloli.com/get/@:huajiujiang?theme=rule34">
 
-## 前端工程师—北落师门
+## 欢迎访问我的主页
 
 前端技术狂，热爱生活
 
